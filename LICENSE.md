@@ -1,4 +1,4 @@
-# 
+# vip NFT Flip Bot for nft sniper bot | floor-price-tracking & profit-calculator offers the most advanced nft sniper bot, with floor-price-tracking and profit-calculator. Ideal for
 
 
 
